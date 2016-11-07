@@ -1,2 +1,2 @@
 # Panpan
-Thump through life
+Thump your way through life
